@@ -14,3 +14,16 @@ is the time more than ever when it is important to promote radically insightful
 and compassionate thinking and help free ourselves of all prescribed beliefs.
 my own words
 
+Oh one other idea that came to mind (which I should really record) is that I
+still see group identity as positive for those have collectively suffered - a
+way to sympathise and help each other through comradery - kind of in
+contradiction to my earlier points
+
+Ok so responding to your first question... Yes I believe that many of JP's
+points are valid even if they come from a place of non-compassion. I think his
+non-compassionate approach truly limits his audience, and misguides his some of
+his alt-right audience which ends up being actually increasingly divisive -
+which is what he has expressed he is trying to combat - so it's in a way
+counter productive. I'm not sure if HE is actually creating ideology - but yeah
+I could see how this could rise
+
