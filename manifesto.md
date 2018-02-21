@@ -54,4 +54,6 @@ Infinite rage permeates my being which I wish to not express.
      I do not seek to worsen your life
      I do not seek vengeance 
 
-Forever I will wonder in wakefulness, truth, and sillyness
+  I don't take sides based on non first hand experience
+
+
